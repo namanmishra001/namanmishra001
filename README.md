@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently working as software engineer In Canda
+I am currently working as software engineer in US based organisation in Canada
 
 
 ## 🌐 Socials:
